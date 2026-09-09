@@ -5,4 +5,4 @@
           　          　          　         $\color{#ECD1BE}{\text{ ິ 𓈒ֺּׅ‿◞ ྀི⠀𓏵 ۪۫۫𓏫       𝙈y love  @Roi3rrs}}$
 
 
-          　          　          　         $\color{#B66E9A}{\text{౨ৎ  . helpme }}$
+$\color{#B66E9A}{\text{౨ৎ  . helpme }}$
