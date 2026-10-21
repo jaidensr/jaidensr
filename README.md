@@ -1,1 +1,3 @@
-qsmp 67
+<p align="center">
+  $\color{B66E9A}{\text{ ♡ my perfect blue}}$
+</p> 
