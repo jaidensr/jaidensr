@@ -9,5 +9,5 @@
 </p> 
 
 <p align="center">
-  <img src="https://files.catbox.moe/4rbb7i.gif" width="30">
+  <img src="https://files.catbox.moe/bqtiir.gif" width="30">
 </p> 
