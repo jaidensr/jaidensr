@@ -1,1 +1,31 @@
-waiit
+
+![polarity](https://files.catbox.moe/n1s9h4.png) 
+
+<p align="center">
+  <img src="https://files.catbox.moe/zx5wb5.png" width="30">
+</p> 
+
+<p align="center">
+  $\color{F6F2E4}{\text{𝐰𝐨𝐰 you actually}}$
+</p>
+<p align="center">
+  $\color{F6F2E4}{\text{showed up.}}$
+</p>
+<p align="center">
+  $\color{F6F2E4}{\text{I love my bff Fluixon ♡.}}$
+</p>
+
+![polarity](https://files.catbox.moe/om67sl.png)
+
+<p align="center">
+  $\color{F6F2E4}{\text{𝐉aide ou 𝐬appy}}$
+</p>
+<p align="center">
+  $\color{F6F2E4}{\text{15y}}$
+</p>
+<p align="center">
+  $\color{F6F2E4}{\text{i love my sis}}$
+</p>
+<p align="center">
+  <img src="https://files.catbox.moe/gcyrnr.gif" width="30">
+</p>
