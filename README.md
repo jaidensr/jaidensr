@@ -19,7 +19,10 @@
 <p align="center">
   $\color{F6F2E4}{\text{15y}}$
 </p>
-
+<p align="center">
+  $\color{F6F2E4}{\text{i love my sis}}$
+</p>
 <p align="center">
   <img src="https://files.catbox.moe/gcyrnr.gif" width="30">
 </p> 
+
